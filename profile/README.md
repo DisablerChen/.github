@@ -7,7 +7,7 @@ We specialize in developing wheelchairs for the elderly👨‍💻
 Our name is "Nuo™ Wheelchair"
 
 More information 
-- access our [Products Website](https://disablerchen.top/)
+- Visit our our [Products Website](https://disablerchen.top/)
 - Or contact our Customer Service Email: [contact@disablerchen.top](contact@disablerchen.top)
 <!--
 
